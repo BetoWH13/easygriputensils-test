@@ -1,5 +1,5 @@
 ---
-title: 🍽 Easy Grip Utensils for Arthritis & Seniors – Comfortable & Adaptive Kitchen Tools
+ 🍽 Easy Grip Utensils for Arthritis & Seniors – Comfortable & Adaptive Kitchen Tools
 ---
 Make Mealtime Easier & More Comfortable
 Struggling with regular cutlery? Easy grip utensils are designed to reduce hand strain, improve control, and restore independence at mealtime. Whether you have arthritis, tremors, or limited grip strength, the right utensils can make eating enjoyable again.
